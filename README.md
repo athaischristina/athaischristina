@@ -1,8 +1,6 @@
 # Thaís Christina
 Osasco/SP, 25 Anos, Gamer e Apaixonada por tecnologia.
-Tenho contato com o design há 9 anos de forma amadora/autodidata 
-e em 2023 resolvi me interessar por front-end e atrelar
- os meus conhecimentos.
+
 
 
  𝘍𝘳𝘰𝘯𝘵-𝘌𝘯𝘥 𝘋𝘦𝘷𝘦𝘭𝘰𝘱𝘦𝘳 | 𝘜𝘟 𝘦 𝘜𝘐 𝘋𝘦𝘴𝘪𝘨𝘯 | 𝘚𝘰𝘤𝘪𝘢𝘭 𝘔𝘦𝘥𝘪𝘢 | 𝘍𝘶𝘭𝘭𝘴𝘵𝘢𝘤𝘬 𝘑𝘢𝘷𝘢+𝘈𝘯𝘨𝘶𝘭𝘢𝘳
